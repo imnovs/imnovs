@@ -6,3 +6,6 @@ I'm still learning how to programming, currently i'm interested in Front End Dev
 
 More about Me
 [Here!](https://www.linkedin.com/in/me-novitasari/)
+
+Connect with Me
+:email: imnovitasari@gmail.com
