@@ -6,7 +6,7 @@ I am Student of Computer Science and Mathematics Binus University
 I'm still learning how to programming, currently i'm interested in Front End Developer, and UI/UX.
 
 More about Me
-[Here!](https://www.linkedin.com/in/me-novitasari/)
+[Here!](https://drive.google.com/drive/folders/16EIcNywfoXS5HPEEo0PTPfKfQE2EgSWf?usp=sharing)
 
 Connect with Me
 
